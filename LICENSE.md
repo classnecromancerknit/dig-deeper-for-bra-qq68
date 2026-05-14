@@ -1,4 +1,4 @@
-#  
+#  dig deeper for brainrots premium Scripts offers the most advanced dig deeper for brainrots Script, with no cooldown and aimbot. Perfect for
 
 
 
